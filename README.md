@@ -1,0 +1,4 @@
+- 👋 Hi, I’m kallolpratim
+- 👀 I’m interested in UI/UX, Blockchain, Early staging startups and things in between
+- 🌱 I’m currently learning Web3
+- 📫 Find me on discord therebelmonk #8367
